@@ -36,7 +36,7 @@ ____
 ### ЛУЧШИЙ ФИЛЬМ ~~ЭТО АНИМЕ~~
 #### ФАКТ? ***КОНЕЧНО ФАКТ***
 
-[МОЙ ЛЮБИМЫЙ ФИЛЬМ]([http://sabaka.net](https://shikimori.me/animes/z20785-mahouka-koukou-no-rettousei))
+[МОЙ ЛЮБИМЫЙ ФИЛЬМ](https://shikimori.me/animes/z20785-mahouka-koukou-no-rettousei)
 
 ~~actually это аниме~~ ***НО*** *КОГО* __ЭТО__ ~~*__ВОЛНУЕТ__*~~
 
