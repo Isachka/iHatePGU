@@ -38,6 +38,9 @@ ____
 
 [МОЙ ЛЮБИМЫЙ ФИЛЬМ](https://shikimori.me/animes/z20785-mahouka-koukou-no-rettousei)
 
+
+[Discord]([https://shikimori.me/animes/z20785-mahouka-koukou-no-rettousei](https://discord.com/))
+
 ~~actually это аниме~~ ***НО*** *КОГО* __ЭТО__ ~~*__ВОЛНУЕТ__*~~
 
 :white_check_mark: Использовать рАзНыЕ сТиЛи
